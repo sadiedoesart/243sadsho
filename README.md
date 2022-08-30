@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @243sadsho
 - 👀 I’m interested in: Coding, math, anime, and social skills 
-- 🌱 I’m currently learning math, animal science, social skills, craft as art, and more!
+- 🌱 I’m currently learning math, art 1, social skills, techinal thearter, and more!
 - 💞️ I’m looking to collaborate on anime.
 
 
